@@ -1,3 +1,4 @@
 Braden
 goodfelb@oregonstate.edu
-Navy blue
+Navy blue0
+The Red Clay Strays
